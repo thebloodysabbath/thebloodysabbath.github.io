@@ -5,4 +5,4 @@
 ☆ were m0stly use pyth0n and html  
 ☆ were beginners at this 
 
-*Glamrock signing 0ut !!!*
+*the Glamrock sys signing 0ut !!!*
