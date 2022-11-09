@@ -1,4 +1,4 @@
-# theglamrocksys.github.io
+# lyrics.
 *Oh, to sail away
 <br>
 To sandy lands and other days
